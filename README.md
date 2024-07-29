@@ -1,0 +1,1 @@
+Avercoin Premine
